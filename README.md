@@ -1,3 +1,4 @@
 ### IMGs (Images) 
+(No Idea About CopyRights¯\_(ツ)_/¯) 
 
-instead of adding 10-3mb  High Resolution pics to the Main Repo I put them here...Enjoy  
+Instead of adding 10-3mb  High Resolution pics to the Main Repo I put them here...Enjoy!  
